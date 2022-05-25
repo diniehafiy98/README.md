@@ -9,7 +9,7 @@
 
 ### Contact Information 
 1. Email: <br> [Dinie Hafiy](https://diniehafiy98@gmail.com)
-2. Telegram : <br> <a href="https://t.me/diniehafiy98">samsam1103</a> 
+2. Telegram : <br> <a href="https://t.me/diniehafiy98">Dinie Hafiy</a> 
 
 ### Social Media
 1. Twitter :<br> [Dinie Hafiy](https://twitter.com/dinie_hafiy/)
